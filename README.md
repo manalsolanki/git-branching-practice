@@ -1,1 +1,2 @@
-Q.1 Which gas is responsible for global warming?
+Q. Which gas is responsible for global warming?
+A. Carbon Dioxide
