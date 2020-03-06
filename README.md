@@ -1,0 +1,1 @@
+Q.1 Which gas is responsible for global warming?
